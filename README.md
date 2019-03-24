@@ -1,2 +1,2 @@
 # technohosting
-wow csk yogi fy wlugians
+ fy wlugians
